@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently building @SeveighTech<br>I'm looking to collaborate on any project, provided I get to build the API😉<br>I'm currently learning project management<br>Ask me about @SeveighTech<br>Fun Fact: It's easy to forget how much impact you've had.
+I'm currently building @SeveighTech<br>I'm currently learning project management<br>Ask me about @SeveighTech<br>Fun Fact: It's easy to forget how much impact you've had.
 
 
 ## 🌐 Socials:
